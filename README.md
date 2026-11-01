@@ -40,4 +40,7 @@ you talk about both our interest
  more info on my socials ^^ 
 
 ⋆˚✰ ݁˖⭑.ᐟ remember, I love you, and always stay bluu!
- 
+
+
+
+ if your still stuck on drama that happened months ago, which you HAVE NO evidence to go against me with, then please dni. I have already stated this. coal irle grown ass self CANT help without harassing someone on a daily basis. a 15 year old vs a grown woman. sorry not sorry, but you pull info out of your ass. <33 
