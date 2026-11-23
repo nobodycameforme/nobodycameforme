@@ -6,4 +6,11 @@
 <div align="center">
 
   <img src="yea.png" width="350">
-</div>- ♱♯𓊆ྀི❤︎𓊇ྀི 𝚊𝚗𝚢/𝚊𝚕𝚕 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜 
+</div>- ♱♯𓊆ྀི❤︎𓊇ྀི 
+𝚊𝚗𝚢/𝚊𝚕𝚕 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜 
+
+<div align="center">
+  <img src="redbanner.jpg" width="500">
+</div>
+
+
