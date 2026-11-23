@@ -11,11 +11,4 @@
   <img src="yea.png" width="350">
 </div>- ♱♯𓊆ྀི❤︎𓊇ྀི 
 𝚊𝚗𝚢/𝚊𝚕𝚕 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜 
-
-<div align="center">
-  <img src="pursuer%20banner%20correct.jpg" width="650">
-</div>
-
-<div align="center">
-  <img src="./ddd.png" width="600">
-</div>
+<
